@@ -17,3 +17,6 @@ hola soy el erick 🤙
 
 Aqui estoy siempre, Reportando desde abajo :D (Vicho se ha apoderado de la linea 18)
 
+
+
+Estamos Activos :glasses:
